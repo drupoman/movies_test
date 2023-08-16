@@ -1,1 +1,1 @@
-trace teach beauty breeze neighborhood matter serious several worried probably chose glad library leader sudden
+importance struggle changing yet pleasure west doing me point swept compare pan nobody needle slope
