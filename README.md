@@ -1,1 +1,1 @@
-worried short straight advice forward feel had provide bite language knife pure dirt comfortable hundred
+heart per close operation bit church per bus previous live sudden stock way front government
