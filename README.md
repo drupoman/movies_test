@@ -1,1 +1,1 @@
-east distance vast gather hit act accept tax universe stand won comfortable generally musical court
+require return spin naturally law mirror require bag forward although effect trip weight indeed thou
