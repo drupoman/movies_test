@@ -1,1 +1,1 @@
-remain cowboy valley fat amount creature charge settle house cave religious influence develop valley contrast
+cutting question sum ranch so electric individual lie production gradually town lay offer broad student
