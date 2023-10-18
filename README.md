@@ -1,1 +1,1 @@
-shop year appearance first arrangement race hang share copper continent bend brown live ocean blind
+worth closely leave education secret buy mixture night score dawn taught let stick develop highway
