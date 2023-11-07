@@ -1,1 +1,1 @@
-fully sent stop jar teeth speech tape pig energy shoulder blow seat should idea within
+capital gas occur understanding full silly engineer like breakfast front leaf taught slide angle safe
