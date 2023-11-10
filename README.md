@@ -1,1 +1,1 @@
-fire with given appearance grow bus numeral nearer nearby string rich practice worried cook rush
+darkness east goose temperature bright himself type lesson electric birthday fog return air money different
