@@ -1,1 +1,1 @@
-exchange principal vote mass till ancient field comfortable car memory earth cold cannot continent were
+research balance point pure recent running scale origin closely capital straight primitive seldom danger forth
