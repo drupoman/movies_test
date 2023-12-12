@@ -1,1 +1,1 @@
-reason settlers laugh them flew escape total mind cow card fifty swimming future put around
+early brave longer education fat my trip agree your social rate temperature higher spring kept
