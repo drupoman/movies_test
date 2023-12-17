@@ -1,1 +1,1 @@
-came student wise bark hour establish lucky pink dead came cat thumb donkey compound chart
+difficult pony fireplace bow congress pull soft work rice wing due care forty west tin
