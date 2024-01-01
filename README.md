@@ -1,1 +1,1 @@
-function copy east goose equipment ordinary seen difficult black twelve palace ruler let both read
+as weigh wild taste object outline likely given began seat lot station birds moment winter
