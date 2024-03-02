@@ -1,11 +1,11 @@
 {
   "name": "movie_test",
-  "version": "1.1.0",
+  "version": "1.1.1",
   "author": "drupoman",
   "license": "ISC",
   "repository": {
     "type": "git",
-    "url": "git+https://github.com/drupoman/movie_test.git"
+    "url": "https://github.com/drupoman/movie_test.git"
   },
   "scripts": {
     "serve": "vue-cli-service serve",
