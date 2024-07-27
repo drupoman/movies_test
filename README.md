@@ -1,1 +1,1 @@
-nearest type gasoline gain accept officer stood change bottle curve brother mirror cover zebra dead
+cap stopped tide properly slabs balloon compare element might captain stage human enjoy one excitement
